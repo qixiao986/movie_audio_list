@@ -7,7 +7,6 @@
 1. 南国野兽 - Beasts of the Southern Wild----[点击播放](https://music.163.com/#/program?id=2508155158)----Mon Jul 18 2022 16:22:04 GMT+0800 (China Standard Time)
 1. 内布拉斯加 - Nebraska----[点击播放](https://music.163.com/#/program?id=2508233107)----Mon Jul 18 2022 16:22:04 GMT+0800 (China Standard Time)
 1. 伯德小姐 - Lady Bird----[点击播放](https://music.163.com/#/program?id=2508163113)----Mon Jul 18 2022 16:22:04 GMT+0800 (China Standard Time)
-1. 三傻大闹宝莱坞 国语版----[点击播放](https://music.163.com/#/program?id=2508188056)----Mon Jul 18 2022 12:49:45 GMT+0800 (China Standard Time)
 1. 醉乡民谣 - Inside Llewyn Davis----[点击播放](https://music.163.com/#/program?id=2508197018)----Mon Jul 18 2022 05:18:27 GMT+0800 (China Standard Time)
 1. 被困家中 - Homebound----[点击播放](https://music.163.com/#/program?id=2508198911)----Sun Jul 17 2022 16:45:12 GMT+0800 (China Standard Time)
 1. 狗镇之主 - Lords of Dogtown----[点击播放](https://music.163.com/#/program?id=2508209912)----Sun Jul 17 2022 16:45:11 GMT+0800 (China Standard Time)
