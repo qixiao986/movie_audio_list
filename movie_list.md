@@ -1,3 +1,8 @@
+1. 野蛮人 - Barbarian----[点击播放](https://music.163.com/#/program?id=2513188734)----Sun Oct 30 2022 18:49:01 GMT+0800 (China Standard Time)
+1. 断魂小丑2 - Terrifier 2----[点击播放](https://music.163.com/#/program?id=2513238677)----Sun Oct 30 2022 18:49:01 GMT+0800 (China Standard Time)
+1. 断魂小丑 - Terrifier----[点击播放](https://music.163.com/#/program?id=2513193751)----Sun Oct 30 2022 18:49:01 GMT+0800 (China Standard Time)
+1. 幸存者 - The Survivalist----[点击播放](https://music.163.com/#/program?id=2513170792)----Sun Oct 30 2022 18:49:01 GMT+0800 (China Standard Time)
+1. 善恶魔法学院 - The School for Good and Evil----[点击播放](https://music.163.com/#/program?id=2513205671)----Sun Oct 30 2022 18:49:01 GMT+0800 (China Standard Time)
 1. 欣快 - Euphoria----[点击播放](https://music.163.com/#/program?id=2513076295)----Sat Oct 29 2022 18:41:40 GMT+0800 (China Standard Time)
 1. 救世 - The Salvation----[点击播放](https://music.163.com/#/program?id=2513149245)----Sat Oct 29 2022 18:41:40 GMT+0800 (China Standard Time)
 1. 富兰克林 - Franklyn----[点击播放](https://music.163.com/#/program?id=2513068372)----Sat Oct 29 2022 18:41:40 GMT+0800 (China Standard Time)
