@@ -1,3 +1,8 @@
+1. 致命录像带99 - V/H/S/99----[点击播放](https://music.163.com/#/program?id=2513214390)----Tue Nov 01 2022 20:26:40 GMT+0800 (China Standard Time)
+1. 维斯珀 - Vesper----[点击播放](https://music.163.com/#/program?id=2513209389)----Tue Nov 01 2022 20:26:40 GMT+0800 (China Standard Time)
+1. 死亡直播 - Deadstream----[点击播放](https://music.163.com/#/program?id=2513177421)----Tue Nov 01 2022 20:26:40 GMT+0800 (China Standard Time)
+1. 意外杀手 - Accident Man----[点击播放](https://music.163.com/#/program?id=2513241414)----Tue Nov 01 2022 20:26:40 GMT+0800 (China Standard Time)
+1. 天堂门票 - Ticket To Paradise----[点击播放](https://music.163.com/#/program?id=2513259391)----Tue Nov 01 2022 20:26:40 GMT+0800 (China Standard Time)
 1. 雷蒙德和雷 - Raymond & Ray----[点击播放](https://music.163.com/#/program?id=2513223066)----Mon Oct 31 2022 20:12:09 GMT+0800 (China Standard Time)
 1. 良心护士 - The Good Nurse----[点击播放](https://music.163.com/#/program?id=2513241119)----Mon Oct 31 2022 20:12:09 GMT+0800 (China Standard Time)
 1. 哥们儿 - Bros----[点击播放](https://music.163.com/#/program?id=2513199105)----Mon Oct 31 2022 20:12:09 GMT+0800 (China Standard Time)
