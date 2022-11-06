@@ -1,3 +1,8 @@
+1. 达荷美女战士 - The Woman King----[点击播放](https://music.163.com/#/program?id=2513435752)----Sun Nov 06 2022 12:42:05 GMT+0800 (China Standard Time)
+1. 聪明生活经济学 - Get Smart With Money----[点击播放](https://music.163.com/#/program?id=2513477658)----Sun Nov 06 2022 12:42:05 GMT+0800 (China Standard Time)
+1. 玛歌 - Margaux----[点击播放](https://music.163.com/#/program?id=2513381882)----Sun Nov 06 2022 12:42:05 GMT+0800 (China Standard Time)
+1. 正午之星 - Stars at Noon----[点击播放](https://music.163.com/#/program?id=2513410762)----Sun Nov 06 2022 12:42:05 GMT+0800 (China Standard Time)
+1. 桥洞的诅咒 - The Curse of Bridge Hollow----[点击播放](https://music.163.com/#/program?id=2513458715)----Sun Nov 06 2022 12:42:04 GMT+0800 (China Standard Time)
 1. 真人快打传奇：雪盲 - Mortal Kombat Legends：Snow Blind----[点击播放](https://music.163.com/#/program?id=2513377881)----Sat Nov 05 2022 20:49:19 GMT+0800 (China Standard Time)
 1. 温德尔和怀尔德 - Wendell and Wild----[点击播放](https://music.163.com/#/program?id=2513429637)----Sat Nov 05 2022 20:49:19 GMT+0800 (China Standard Time)
 1. 撒玛利亚 - Samaritan----[点击播放](https://music.163.com/#/program?id=2513464571)----Sat Nov 05 2022 20:49:19 GMT+0800 (China Standard Time)
