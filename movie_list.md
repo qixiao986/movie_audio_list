@@ -1,3 +1,8 @@
+1. 灵数23 - The Number 23----[点击播放](https://music.163.com/#/program?id=2513759594)----Fri Nov 11 2022 20:23:31 GMT+0800 (China Standard Time)
+1. 外星奇缘 - Earth Girls Are Easy----[点击播放](https://music.163.com/#/program?id=2513715600)----Fri Nov 11 2022 20:23:31 GMT+0800 (China Standard Time)
+1. 劣质爱情 - The Bad Batch----[点击播放](https://music.163.com/#/program?id=2513689599)----Fri Nov 11 2022 20:23:31 GMT+0800 (China Standard Time)
+1. 佩姬苏要出嫁 - Peggy Sue Got Married----[点击播放](https://music.163.com/#/program?id=2513711585)----Fri Nov 11 2022 20:23:30 GMT+0800 (China Standard Time)
+1. 一咬定情 - Once Bitten----[点击播放](https://music.163.com/#/program?id=2513787596)----Fri Nov 11 2022 20:23:30 GMT+0800 (China Standard Time)
 1. 鬼马精灵1991 - High Strung----[点击播放](https://music.163.com/#/program?id=2513605746)----Thu Nov 10 2022 20:03:31 GMT+0800 (China Standard Time)
 1. 阿呆与阿瓜2 - Dumb and Dumber To----[点击播放](https://music.163.com/#/program?id=2513596744)----Thu Nov 10 2022 20:03:31 GMT+0800 (China Standard Time)
 1. 王牌特派员 - The Cable Guy----[点击播放](https://music.163.com/#/program?id=2513687452)----Thu Nov 10 2022 20:03:30 GMT+0800 (China Standard Time)
