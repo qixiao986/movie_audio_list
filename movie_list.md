@@ -1,3 +1,8 @@
+1. 阿姆斯特丹 - Amsterdam----[点击播放](https://music.163.com/#/program?id=2513735143)----Sun Nov 13 2022 21:45:50 GMT+0800 (China Standard Time)
+1. 火山挚恋 - Fire of Love----[点击播放](https://music.163.com/#/program?id=2513772093)----Sun Nov 13 2022 21:45:50 GMT+0800 (China Standard Time)
+1. 惊心食人族：重生 - Jeepers Creepers：Reborn----[点击播放](https://music.163.com/#/program?id=2513691120)----Sun Nov 13 2022 21:45:50 GMT+0800 (China Standard Time)
+1. 德州电锯杀人狂2022 - Texas Chainsaw Massacre----[点击播放](https://music.163.com/#/program?id=2513699142)----Sun Nov 13 2022 21:45:50 GMT+0800 (China Standard Time)
+1. 喂我 - Feed Me----[点击播放](https://music.163.com/#/program?id=2513765086)----Sun Nov 13 2022 21:45:50 GMT+0800 (China Standard Time)
 1. 韩赛尔与格蕾特：女巫猎人 - Hansel and Gretel：Witch Hunters----[点击播放](https://music.163.com/#/program?id=2513763834)----Sat Nov 12 2022 20:40:57 GMT+0800 (China Standard Time)
 1. 福尔摩斯小姐：伦敦厄运 - Enola Holmes 2----[点击播放](https://music.163.com/#/program?id=2513783839)----Sat Nov 12 2022 20:18:45 GMT+0800 (China Standard Time)
 1. 看他们如何逃之夭夭 - See How They Run----[点击播放](https://music.163.com/#/program?id=2513693830)----Sat Nov 12 2022 20:18:45 GMT+0800 (China Standard Time)
