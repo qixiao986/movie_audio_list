@@ -1,3 +1,8 @@
+1. 苹果核战记α - APPLESEED Alpha----[点击播放](https://music.163.com/#/program?id=2513915333)----Tue Nov 22 2022 11:09:41 GMT+0800 (China Standard Time)
+1. 苹果核战记1988 - APPLESEED----[点击播放](https://music.163.com/#/program?id=2513951239)----Tue Nov 22 2022 11:09:41 GMT+0800 (China Standard Time)
+1. 苹果核战记2 - APPLESEED EX MACHINA----[点击播放](https://music.163.com/#/program?id=2513982201)----Tue Nov 22 2022 11:09:41 GMT+0800 (China Standard Time)
+1. 炼狱机器 - The Infernal Machine----[点击播放](https://music.163.com/#/program?id=2513904310)----Tue Nov 22 2022 11:09:40 GMT+0800 (China Standard Time)
+1. 最孤独的男孩 - The Loneliest Boy in the World----[点击播放](https://music.163.com/#/program?id=2513953199)----Tue Nov 22 2022 11:09:40 GMT+0800 (China Standard Time)
 1. 苹果核战记 - APPLESEED----[点击播放](https://music.163.com/#/program?id=2513925157)----Mon Nov 21 2022 17:00:41 GMT+0800 (China Standard Time)
 1. 歌舞青春3：毕业季 - High School Musical 3：Senior Year----[点击播放](https://music.163.com/#/program?id=2513939968)----Mon Nov 21 2022 11:02:57 GMT+0800 (China Standard Time)
 1. 歌舞青春2 - High School Musical 2----[点击播放](https://music.163.com/#/program?id=2513903003)----Mon Nov 21 2022 11:02:57 GMT+0800 (China Standard Time)
