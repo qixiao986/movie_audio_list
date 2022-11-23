@@ -1,3 +1,8 @@
+1. 鳄鱼莱莱 - Lyle, Lyle, Crocodile----[点击播放](https://music.163.com/#/program?id=2513998065)----Wed Nov 23 2022 11:36:53 GMT+0800 (China Standard Time)
+1. 逆冰之行 - Against the Ice----[点击播放](https://music.163.com/#/program?id=2514050537)----Wed Nov 23 2022 11:36:53 GMT+0800 (China Standard Time)
+1. 迷因杀机 - Grimcutty----[点击播放](https://music.163.com/#/program?id=2514062532)----Wed Nov 23 2022 11:36:53 GMT+0800 (China Standard Time)
+1. 暗影特工 - Section Eight----[点击播放](https://music.163.com/#/program?id=2514052510)----Wed Nov 23 2022 11:36:53 GMT+0800 (China Standard Time)
+1. 世界末日 - Armageddon Time----[点击播放](https://music.163.com/#/program?id=2514031542)----Wed Nov 23 2022 11:36:53 GMT+0800 (China Standard Time)
 1. 苹果核战记α - APPLESEED Alpha----[点击播放](https://music.163.com/#/program?id=2513915333)----Tue Nov 22 2022 11:09:41 GMT+0800 (China Standard Time)
 1. 苹果核战记1988 - APPLESEED----[点击播放](https://music.163.com/#/program?id=2513951239)----Tue Nov 22 2022 11:09:41 GMT+0800 (China Standard Time)
 1. 苹果核战记2 - APPLESEED EX MACHINA----[点击播放](https://music.163.com/#/program?id=2513982201)----Tue Nov 22 2022 11:09:41 GMT+0800 (China Standard Time)
