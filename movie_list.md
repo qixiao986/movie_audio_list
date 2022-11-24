@@ -1,3 +1,8 @@
+1. 钱信伊：地下酒吧 - Ronny Chieng：Speakeasy----[点击播放](https://music.163.com/#/program?id=2514036075)----Thu Nov 24 2022 11:08:58 GMT+0800 (China Standard Time)
+1. 蠢蛋搞怪到永远 - Jackass Forever----[点击播放](https://music.163.com/#/program?id=2514038970)----Thu Nov 24 2022 11:08:58 GMT+0800 (China Standard Time)
+1. 蒂尔 - Till----[点击播放](https://music.163.com/#/program?id=2514017137)----Thu Nov 24 2022 11:08:57 GMT+0800 (China Standard Time)
+1. 破裂 - Breaking----[点击播放](https://music.163.com/#/program?id=2514038969)----Thu Nov 24 2022 11:08:57 GMT+0800 (China Standard Time)
+1. 关于命运 - About Fate----[点击播放](https://music.163.com/#/program?id=2514004097)----Thu Nov 24 2022 11:08:57 GMT+0800 (China Standard Time)
 1. 鳄鱼莱莱 - Lyle, Lyle, Crocodile----[点击播放](https://music.163.com/#/program?id=2513998065)----Wed Nov 23 2022 11:36:53 GMT+0800 (China Standard Time)
 1. 逆冰之行 - Against the Ice----[点击播放](https://music.163.com/#/program?id=2514050537)----Wed Nov 23 2022 11:36:53 GMT+0800 (China Standard Time)
 1. 迷因杀机 - Grimcutty----[点击播放](https://music.163.com/#/program?id=2514062532)----Wed Nov 23 2022 11:36:53 GMT+0800 (China Standard Time)
