@@ -1,3 +1,8 @@
+1. 逃离喀布尔 - Escape from Kabul----[点击播放](https://music.163.com/#/program?id=2514544107)----Mon Dec 05 2022 11:26:40 GMT+0800 (China Standard Time)
+1. 米奇的故事 - Mickey：The Story of a Mouse----[点击播放](https://music.163.com/#/program?id=2514482062)----Mon Dec 05 2022 11:26:40 GMT+0800 (China Standard Time)
+1. 施图茨的疗愈之道 - Stutz----[点击播放](https://music.163.com/#/program?id=2514494061)----Mon Dec 05 2022 11:26:39 GMT+0800 (China Standard Time)
+1. 报丧女妖 - Code Name Banshee----[点击播放](https://music.163.com/#/program?id=2514505111)----Mon Dec 05 2022 11:26:39 GMT+0800 (China Standard Time)
+1. 007之声 - The Sound of 007----[点击播放](https://music.163.com/#/program?id=2514511110)----Mon Dec 05 2022 11:26:39 GMT+0800 (China Standard Time)
 1. 惊声尖叫4 - Scream 4----[点击播放](https://music.163.com/#/program?id=2514489995)----Sun Dec 04 2022 21:13:47 GMT+0800 (China Standard Time)
 1. 惊声尖叫3 - Scream 3----[点击播放](https://music.163.com/#/program?id=2514472041)----Sun Dec 04 2022 21:13:47 GMT+0800 (China Standard Time)
 1. 惊声尖叫2 - Scream 2----[点击播放](https://music.163.com/#/program?id=2514472040)----Sun Dec 04 2022 21:13:46 GMT+0800 (China Standard Time)
