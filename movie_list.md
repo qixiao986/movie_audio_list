@@ -1,3 +1,8 @@
+1. 黑色电话 - The Black Phone----[点击播放](https://music.163.com/#/program?id=2514574599)----Tue Dec 06 2022 10:24:58 GMT+0800 (China Standard Time)
+1. 泰国洞穴救援 - The Rescue----[点击播放](https://music.163.com/#/program?id=2514651586)----Tue Dec 06 2022 10:24:58 GMT+0800 (China Standard Time)
+1. 歇斯底里 - Hysterical----[点击播放](https://music.163.com/#/program?id=2514640575)----Tue Dec 06 2022 10:24:58 GMT+0800 (China Standard Time)
+1. 有答案的男子 - The Man with the Answers----[点击播放](https://music.163.com/#/program?id=2514656560)----Tue Dec 06 2022 10:24:58 GMT+0800 (China Standard Time)
+1. 地球改变之年 - The Year Earth Changed----[点击播放](https://music.163.com/#/program?id=2514623581)----Tue Dec 06 2022 10:24:58 GMT+0800 (China Standard Time)
 1. 逃离喀布尔 - Escape from Kabul----[点击播放](https://music.163.com/#/program?id=2514544107)----Mon Dec 05 2022 11:26:40 GMT+0800 (China Standard Time)
 1. 米奇的故事 - Mickey：The Story of a Mouse----[点击播放](https://music.163.com/#/program?id=2514482062)----Mon Dec 05 2022 11:26:40 GMT+0800 (China Standard Time)
 1. 施图茨的疗愈之道 - Stutz----[点击播放](https://music.163.com/#/program?id=2514494061)----Mon Dec 05 2022 11:26:39 GMT+0800 (China Standard Time)
