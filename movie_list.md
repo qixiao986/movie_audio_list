@@ -1,3 +1,8 @@
+1. 蠢蛋搞怪到永远4.5 - Jackass 4.5----[点击播放](https://music.163.com/#/program?id=2514826625)----Thu Dec 08 2022 11:32:59 GMT+0800 (China Standard Time)
+1. 白象 - White Elephant----[点击播放](https://music.163.com/#/program?id=2514864621)----Thu Dec 08 2022 11:32:59 GMT+0800 (China Standard Time)
+1. 无名姐妹 - The Janes----[点击播放](https://music.163.com/#/program?id=2514858591)----Thu Dec 08 2022 11:32:59 GMT+0800 (China Standard Time)
+1. 变通美食家 - Flux Gourmet----[点击播放](https://music.163.com/#/program?id=2514787610)----Thu Dec 08 2022 11:32:59 GMT+0800 (China Standard Time)
+1. 击垮国王 - Down with the King----[点击播放](https://music.163.com/#/program?id=2514820608)----Thu Dec 08 2022 11:32:58 GMT+0800 (China Standard Time)
 1. 汉密尔顿 - Hamilton----[点击播放](https://music.163.com/#/program?id=2514685567)----Wed Dec 07 2022 10:30:30 GMT+0800 (China Standard Time)
 1. 她说 - She Said----[点击播放](https://music.163.com/#/program?id=2514741565)----Wed Dec 07 2022 10:30:30 GMT+0800 (China Standard Time)
 1. 加菲猫2 - Garfield：A Tail of Two Kitties----[点击播放](https://music.163.com/#/program?id=2514566820)----Wed Dec 07 2022 10:30:30 GMT+0800 (China Standard Time)
