@@ -1,3 +1,8 @@
+1. 骨及所有 - Bones and All----[点击播放](https://music.163.com/#/program?id=2515440651)----Thu Dec 15 2022 11:09:13 GMT+0800 (China Standard Time)
+1. 真相 - Truth----[点击播放](https://music.163.com/#/program?id=2515387653)----Thu Dec 15 2022 11:09:13 GMT+0800 (China Standard Time)
+1. 我的朋友都恨我 - All My Friends Hate Me----[点击播放](https://music.163.com/#/program?id=2515444699)----Thu Dec 15 2022 11:09:13 GMT+0800 (China Standard Time)
+1. 双面陌生人 - The Stranger----[点击播放](https://music.163.com/#/program?id=2515434673)----Thu Dec 15 2022 11:09:12 GMT+0800 (China Standard Time)
+1. 伊尼舍林的报丧女妖 - The Banshees of Inisherin----[点击播放](https://music.163.com/#/program?id=2515420680)----Thu Dec 15 2022 11:09:12 GMT+0800 (China Standard Time)
 1. 造梦之家 - The Fabelmans----[点击播放](https://music.163.com/#/program?id=2515472496)----Wed Dec 14 2022 15:53:11 GMT+0800 (China Standard Time)
 1. 清秀佳人2016 - Anne of Green Gables----[点击播放](https://music.163.com/#/program?id=2515458485)----Wed Dec 14 2022 15:28:14 GMT+0800 (China Standard Time)
 1. 长大成人2 - Grown Ups 2----[点击播放](https://music.163.com/#/program?id=2515470480)----Wed Dec 14 2022 14:30:37 GMT+0800 (China Standard Time)
