@@ -1,3 +1,8 @@
+1. 诺桑觉寺 - Northanger Abbey----[点击播放](https://music.163.com/#/program?id=2515395156)----Sat Dec 17 2022 10:40:07 GMT+0800 (China Standard Time)
+1. 解放黑奴 - Emancipation----[点击播放](https://music.163.com/#/program?id=2515429089)----Sat Dec 17 2022 10:40:07 GMT+0800 (China Standard Time)
+1. 华尔街：金钱永不眠 - Wall Street：Money Never Sleeps----[点击播放](https://music.163.com/#/program?id=2515383135)----Sat Dec 17 2022 10:40:07 GMT+0800 (China Standard Time)
+1. 了不起的盖茨比1974 - The Great Gatsby----[点击播放](https://music.163.com/#/program?id=2515381149)----Sat Dec 17 2022 10:40:07 GMT+0800 (China Standard Time)
+1. 我的孩子杰克 - My Boy Jack----[点击播放](https://music.163.com/#/program?id=2515526596)----Sat Dec 17 2022 10:40:07 GMT+0800 (China Standard Time)
 1. 调情 - Flirting----[点击播放](https://music.163.com/#/program?id=2515432427)----Sun Dec 18 2022 20:37:40 GMT+0800 (China Standard Time)
 1. 蒙特卡洛 - Monte Carlo----[点击播放](https://music.163.com/#/program?id=2515539467)----Sun Dec 18 2022 20:37:39 GMT+0800 (China Standard Time)
 1. 翻译风波 - The Interpreter----[点击播放](https://music.163.com/#/program?id=2515397369)----Sun Dec 18 2022 20:37:39 GMT+0800 (China Standard Time)
