@@ -1,3 +1,7 @@
+1. 杀手的祷告 - The Hunter's Prayer----[点击播放](https://music.163.com/#/program?id=2515620878)----Wed Dec 21 2022 10:03:40 GMT+0800 (China Standard Time)
+1. 暴力之夜 - Violent Night----[点击播放](https://music.163.com/#/program?id=2515659783)----Wed Dec 21 2022 10:03:40 GMT+0800 (China Standard Time)
+1. 德州杀场 - Texas Killing Fields----[点击播放](https://music.163.com/#/program?id=2515596881)----Wed Dec 21 2022 10:03:39 GMT+0800 (China Standard Time)
+1. 兰博基尼 - Lamborghini----[点击播放](https://music.163.com/#/program?id=2515664791)----Wed Dec 21 2022 10:03:39 GMT+0800 (China Standard Time)
 1. 脚斗士 - Bootmen----[点击播放](https://music.163.com/#/program?id=2515615658)----Tue Dec 20 2022 10:50:52 GMT+0800 (China Standard Time)
 1. 罪孽 - The Debt----[点击播放](https://music.163.com/#/program?id=2515539758)----Tue Dec 20 2022 10:50:52 GMT+0800 (China Standard Time)
 1. 无人看护 - The Keeping Room----[点击播放](https://music.163.com/#/program?id=2515540758)----Tue Dec 20 2022 10:50:52 GMT+0800 (China Standard Time)
