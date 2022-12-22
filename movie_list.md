@@ -1,3 +1,8 @@
+1. 纽约提喻法 - Synecdoche, New York----[点击播放](https://music.163.com/#/program?id=2515560105)----Thu Dec 22 2022 10:24:49 GMT+0800 (China Standard Time)
+1. 我是希斯·莱杰 - I Am Heath Ledger----[点击播放](https://music.163.com/#/program?id=2515586081)----Thu Dec 22 2022 10:24:49 GMT+0800 (China Standard Time)
+1. 心灵驿站 - The Station Agent----[点击播放](https://music.163.com/#/program?id=2515556101)----Thu Dec 22 2022 10:24:49 GMT+0800 (China Standard Time)
+1. 为你钟情2 - If These Walls Could Talk 2----[点击播放](https://music.163.com/#/program?id=2515569111)----Thu Dec 22 2022 10:24:49 GMT+0800 (China Standard Time)
+1. 为你钟情 - If These Walls Could Talk----[点击播放](https://music.163.com/#/program?id=2515548133)----Thu Dec 22 2022 10:24:48 GMT+0800 (China Standard Time)
 1. 杀手的祷告 - The Hunter's Prayer----[点击播放](https://music.163.com/#/program?id=2515620878)----Wed Dec 21 2022 10:03:40 GMT+0800 (China Standard Time)
 1. 暴力之夜 - Violent Night----[点击播放](https://music.163.com/#/program?id=2515659783)----Wed Dec 21 2022 10:03:40 GMT+0800 (China Standard Time)
 1. 德州杀场 - Texas Killing Fields----[点击播放](https://music.163.com/#/program?id=2515596881)----Wed Dec 21 2022 10:03:39 GMT+0800 (China Standard Time)
