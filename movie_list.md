@@ -1,3 +1,8 @@
+1. 诸法转变 - This Changes Everything----[点击播放](https://music.163.com/#/program?id=2515580290)----Fri Dec 23 2022 10:02:50 GMT+0800 (China Standard Time)
+1. 情系斯波克 - For the Love of Spock----[点击播放](https://music.163.com/#/program?id=2515659180)----Fri Dec 23 2022 10:02:50 GMT+0800 (China Standard Time)
+1. 妙笔生花 - The Words----[点击播放](https://music.163.com/#/program?id=2515543319)----Fri Dec 23 2022 10:02:49 GMT+0800 (China Standard Time)
+1. 刺杀据点 - Vantage Point----[点击播放](https://music.163.com/#/program?id=2515576302)----Fri Dec 23 2022 10:02:49 GMT+0800 (China Standard Time)
+1. 乐鼓热线 - Drumline----[点击播放](https://music.163.com/#/program?id=2515669137)----Fri Dec 23 2022 10:02:49 GMT+0800 (China Standard Time)
 1. 纽约提喻法 - Synecdoche, New York----[点击播放](https://music.163.com/#/program?id=2515560105)----Thu Dec 22 2022 10:24:49 GMT+0800 (China Standard Time)
 1. 我是希斯·莱杰 - I Am Heath Ledger----[点击播放](https://music.163.com/#/program?id=2515586081)----Thu Dec 22 2022 10:24:49 GMT+0800 (China Standard Time)
 1. 心灵驿站 - The Station Agent----[点击播放](https://music.163.com/#/program?id=2515556101)----Thu Dec 22 2022 10:24:49 GMT+0800 (China Standard Time)
