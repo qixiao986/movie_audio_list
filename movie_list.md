@@ -1,3 +1,7 @@
+1. 白噪音2022 - White Noise----[点击播放](https://music.163.com/#/program?id=2515929288)----Sun Jan 01 2023 18:37:09 GMT+0800 (China Standard Time)
+1. 新圣诞颂歌 - Christmas Carole----[点击播放](https://music.163.com/#/program?id=2515968200)----Sat Dec 31 2022 19:15:20 GMT+0800 (China Standard Time)
+1. Saving Christmas Spirit----[点击播放](https://music.163.com/#/program?id=2515935122)----Sat Dec 31 2022 19:15:20 GMT+0800 (China Standard Time)
+1. A Brush with Christmas----[点击播放](https://music.163.com/#/program?id=2515995128)----Sat Dec 31 2022 19:15:20 GMT+0800 (China Standard Time)
 1. 追爱四人行 - Sam & Kate----[点击播放](https://music.163.com/#/program?id=2515996783)----Fri Dec 30 2022 11:34:35 GMT+0800 (China Standard Time)
 1. 神奇的莫里斯 - The Amazing Maurice----[点击播放](https://music.163.com/#/program?id=2515988788)----Fri Dec 30 2022 11:34:35 GMT+0800 (China Standard Time)
 1. When Christmas Was Young----[点击播放](https://music.163.com/#/program?id=2515948792)----Fri Dec 30 2022 11:34:35 GMT+0800 (China Standard Time)
