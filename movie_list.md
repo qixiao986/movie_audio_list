@@ -1,3 +1,8 @@
+1. 鲶鱼杀手 - Catfish Killer----[点击播放](https://music.163.com/#/program?id=2516298480)----Fri Jan 06 2023 13:47:54 GMT+0800 (China Standard Time)
+1. 莉佐：巡回演唱会纪实 - Lizzo：Live in Concert----[点击播放](https://music.163.com/#/program?id=2516293489)----Fri Jan 06 2023 13:47:54 GMT+0800 (China Standard Time)
+1. 杏仁体与海马体 - The Almond and the Seahorse----[点击播放](https://music.163.com/#/program?id=2516247490)----Fri Jan 06 2023 13:47:54 GMT+0800 (China Standard Time)
+1. Platinum 2022----[点击播放](https://music.163.com/#/program?id=2516249482)----Fri Jan 06 2023 13:47:53 GMT+0800 (China Standard Time)
+1. Christmas Bedtime Stories----[点击播放](https://music.163.com/#/program?id=2516333480)----Fri Jan 06 2023 13:47:53 GMT+0800 (China Standard Time)
 1. 熊出没之夺宝熊兵 英文版 - Boonie Bears, to the Rescue!----[点击播放](https://music.163.com/#/program?id=2516229642)----Thu Jan 05 2023 15:04:23 GMT+0800 (China Standard Time)
 1. 爱到尽头 - The End of the Affair----[点击播放](https://music.163.com/#/program?id=2516138928)----Thu Jan 05 2023 09:36:38 GMT+0800 (China Standard Time)
 1. 日历女孩 - Calendar Girls----[点击播放](https://music.163.com/#/program?id=2516161959)----Thu Jan 05 2023 09:36:38 GMT+0800 (China Standard Time)
