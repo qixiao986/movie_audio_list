@@ -1,3 +1,8 @@
+1. 鲸奇 - Big Miracle----[点击播放](https://music.163.com/#/program?id=2516365766)----Wed Jan 11 2023 12:30:47 GMT+0800 (China Standard Time)
+1. 金赛性学教授 - Kinsey----[点击播放](https://music.163.com/#/program?id=2516447650)----Wed Jan 11 2023 12:30:47 GMT+0800 (China Standard Time)
+1. 致命情挑 - Under Suspicion----[点击播放](https://music.163.com/#/program?id=2516398696)----Wed Jan 11 2023 12:30:47 GMT+0800 (China Standard Time)
+1. 危机13小时 - 13 Hours：The Secret Soldiers of Benghazi----[点击播放](https://music.163.com/#/program?id=2516397729)----Wed Jan 11 2023 12:30:47 GMT+0800 (China Standard Time)
+1. 先知 - The Prophet----[点击播放](https://music.163.com/#/program?id=2516402706)----Wed Jan 11 2023 12:30:47 GMT+0800 (China Standard Time)
 1. 醉梦乡 - Land of Dreams----[点击播放](https://music.163.com/#/program?id=2516450461)----Tue Jan 10 2023 13:10:24 GMT+0800 (China Standard Time)
 1. 男孩、鼹鼠、狐狸和马 - The Boy, the Mole, the Fox and the Horse----[点击播放](https://music.163.com/#/program?id=2516415467)----Tue Jan 10 2023 13:10:24 GMT+0800 (China Standard Time)
 1. 思维笼 - Mindcage----[点击播放](https://music.163.com/#/program?id=2516353424)----Tue Jan 10 2023 13:10:24 GMT+0800 (China Standard Time)
