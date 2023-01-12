@@ -1,3 +1,8 @@
+1. 神奇队长 - Captain Fantastic----[点击播放](https://music.163.com/#/program?id=2516530539)----Thu Jan 12 2023 10:49:07 GMT+0800 (China Standard Time)
+1. 最美的你 - The Best People----[点击播放](https://music.163.com/#/program?id=2516535537)----Thu Jan 12 2023 10:49:07 GMT+0800 (China Standard Time)
+1. 暴力史 - A History of Violence----[点击播放](https://music.163.com/#/program?id=2516554549)----Thu Jan 12 2023 10:49:07 GMT+0800 (China Standard Time)
+1. 印第安信使 - The Indian Runner----[点击播放](https://music.163.com/#/program?id=2516512568)----Thu Jan 12 2023 10:49:07 GMT+0800 (China Standard Time)
+1. 东方的承诺 - Eastern Promises----[点击播放](https://music.163.com/#/program?id=2516499555)----Thu Jan 12 2023 10:49:07 GMT+0800 (China Standard Time)
 1. 鲸奇 - Big Miracle----[点击播放](https://music.163.com/#/program?id=2516365766)----Wed Jan 11 2023 12:30:47 GMT+0800 (China Standard Time)
 1. 金赛性学教授 - Kinsey----[点击播放](https://music.163.com/#/program?id=2516447650)----Wed Jan 11 2023 12:30:47 GMT+0800 (China Standard Time)
 1. 致命情挑 - Under Suspicion----[点击播放](https://music.163.com/#/program?id=2516398696)----Wed Jan 11 2023 12:30:47 GMT+0800 (China Standard Time)
