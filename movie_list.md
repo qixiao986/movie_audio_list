@@ -1,3 +1,8 @@
+1. 魔鬼女大兵 - G.I. Jane----[点击播放](https://music.163.com/#/program?id=2516747535)----Fri Jan 13 2023 10:46:09 GMT+0800 (China Standard Time)
+1. 魔鬼与我同生 - The Reflecting Skin----[点击播放](https://music.163.com/#/program?id=2516711563)----Fri Jan 13 2023 10:46:08 GMT+0800 (China Standard Time)
+1. 沙漠骑兵 - Hidalgo----[点击播放](https://music.163.com/#/program?id=2516686583)----Fri Jan 13 2023 10:46:08 GMT+0800 (China Standard Time)
+1. 战栗女人香 - The Passion of Darkly Noon----[点击播放](https://music.163.com/#/program?id=2516689581)----Fri Jan 13 2023 10:46:08 GMT+0800 (China Standard Time)
+1. 好人 - Good----[点击播放](https://music.163.com/#/program?id=2516740530)----Fri Jan 13 2023 10:46:08 GMT+0800 (China Standard Time)
 1. 神奇队长 - Captain Fantastic----[点击播放](https://music.163.com/#/program?id=2516530539)----Thu Jan 12 2023 10:49:07 GMT+0800 (China Standard Time)
 1. 最美的你 - The Best People----[点击播放](https://music.163.com/#/program?id=2516535537)----Thu Jan 12 2023 10:49:07 GMT+0800 (China Standard Time)
 1. 暴力史 - A History of Violence----[点击播放](https://music.163.com/#/program?id=2516554549)----Thu Jan 12 2023 10:49:07 GMT+0800 (China Standard Time)
