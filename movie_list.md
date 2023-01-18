@@ -1,3 +1,8 @@
+1. 葛底斯堡 - Gettysburg----[点击播放](https://music.163.com/#/program?id=2516825666)----Wed Jan 18 2023 13:36:25 GMT+0800 (China Standard Time)
+1. 白爱尔兰酒鬼 - White Irish Drinkers----[点击播放](https://music.163.com/#/program?id=2516849592)----Wed Jan 18 2023 13:36:25 GMT+0800 (China Standard Time)
+1. 大病 - Sick----[点击播放](https://music.163.com/#/program?id=2516780709)----Wed Jan 18 2023 13:36:25 GMT+0800 (China Standard Time)
+1. 众神与将军 - Gods and Generals----[点击播放](https://music.163.com/#/program?id=2516834635)----Wed Jan 18 2023 13:36:25 GMT+0800 (China Standard Time)
+1. X计划1987 - Project X----[点击播放](https://music.163.com/#/program?id=2516859633)----Wed Jan 18 2023 13:36:25 GMT+0800 (China Standard Time)
 1. 鬼哭山河 - Prison----[点击播放](https://music.163.com/#/program?id=2516734400)----Tue Jan 17 2023 11:03:15 GMT+0800 (China Standard Time)
 1. 美国心黑道情 - American Yakuza----[点击播放](https://music.163.com/#/program?id=2516694352)----Tue Jan 17 2023 11:03:15 GMT+0800 (China Standard Time)
 1. 清白的嫌疑人 - Confess, Fletch----[点击播放](https://music.163.com/#/program?id=2516680375)----Tue Jan 17 2023 11:03:15 GMT+0800 (China Standard Time)
