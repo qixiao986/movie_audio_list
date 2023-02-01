@@ -1,3 +1,8 @@
+1. 鲨鱼之水 - Shark Waters----[点击播放](https://music.163.com/#/program?id=2517099739)----Wed Feb 01 2023 12:33:15 GMT+0800 (China Standard Time)
+1. 当你拯救完世界 - When You Finish Saving The World----[点击播放](https://music.163.com/#/program?id=2517120666)----Wed Feb 01 2023 12:33:15 GMT+0800 (China Standard Time)
+1. 巴比伦 - Babylon----[点击播放](https://music.163.com/#/program?id=2517133634)----Wed Feb 01 2023 12:33:15 GMT+0800 (China Standard Time)
+1. Scorched Earth 2022----[点击播放](https://music.163.com/#/program?id=2517114678)----Wed Feb 01 2023 12:33:15 GMT+0800 (China Standard Time)
+1. Night of the Bastard----[点击播放](https://music.163.com/#/program?id=2517189470)----Wed Feb 01 2023 12:33:15 GMT+0800 (China Standard Time)
 1. 黑豹2 - Black Panther：Wakanda Forever----[点击播放](https://music.163.com/#/program?id=2517122455)----Tue Jan 31 2023 15:09:32 GMT+0800 (China Standard Time)
 1. 半梦半醒的人生 - Waking Life----[点击播放](https://music.163.com/#/program?id=2516987445)----Tue Jan 31 2023 14:39:57 GMT+0800 (China Standard Time)
 1. 霓虹灯外 - Beyond the Neon----[点击播放](https://music.163.com/#/program?id=2517006414)----Tue Jan 31 2023 13:33:22 GMT+0800 (China Standard Time)
