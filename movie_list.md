@@ -1,3 +1,8 @@
+1. 见鬼女孩 - Darby and the Dead----[点击播放](https://music.163.com/#/program?id=2517262566)----Fri Feb 03 2023 11:55:44 GMT+0800 (China Standard Time)
+1. 蓝背鱼 - Blueback----[点击播放](https://music.163.com/#/program?id=2517289564)----Fri Feb 03 2023 11:55:44 GMT+0800 (China Standard Time)
+1. 恐惧开始 - Bring Out the Fear----[点击播放](https://music.163.com/#/program?id=2517289563)----Fri Feb 03 2023 11:55:44 GMT+0800 (China Standard Time)
+1. 帕梅拉·安德森：我的爱情故事 - Pamela：A Love Story----[点击播放](https://music.163.com/#/program?id=2517256570)----Fri Feb 03 2023 11:55:44 GMT+0800 (China Standard Time)
+1. 布鲁克林黑街 - Last Exit to Brooklyn----[点击播放](https://music.163.com/#/program?id=2517222577)----Fri Feb 03 2023 11:55:44 GMT+0800 (China Standard Time)
 1. 与安德烈晚餐 - My Dinner with Andre----[点击播放](https://music.163.com/#/program?id=2517159866)----Thu Feb 02 2023 13:44:16 GMT+0800 (China Standard Time)
 1. 超级英雄军团 - Legion of Super-Heroes----[点击播放](https://music.163.com/#/program?id=2517128889)----Thu Feb 02 2023 12:08:05 GMT+0800 (China Standard Time)
 1. 你们这些人 - You People----[点击播放](https://music.163.com/#/program?id=2517090031)----Thu Feb 02 2023 12:08:04 GMT+0800 (China Standard Time)
