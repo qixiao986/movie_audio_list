@@ -1,3 +1,8 @@
+1. 疗愈火山岛 - Stromboli----[点击播放](https://music.163.com/#/program?id=2517420442)----Wed Feb 08 2023 17:49:41 GMT+0800 (China Standard Time)
+1. 小迪克西 - Little Dixie----[点击播放](https://music.163.com/#/program?id=2517504513)----Wed Feb 08 2023 17:49:41 GMT+0800 (China Standard Time)
+1. 光之帝国 - Empire of Light----[点击播放](https://music.163.com/#/program?id=2517549487)----Wed Feb 08 2023 17:49:40 GMT+0800 (China Standard Time)
+1. 与爱共舞 - I Wanna Dance with Somebody----[点击播放](https://music.163.com/#/program?id=2517510501)----Wed Feb 08 2023 17:49:40 GMT+0800 (China Standard Time)
+1. Blood 2022----[点击播放](https://music.163.com/#/program?id=2517462417)----Wed Feb 08 2023 17:49:40 GMT+0800 (China Standard Time)
 1. 逐梦大海 - True Spirit----[点击播放](https://music.163.com/#/program?id=2517448192)----Tue Feb 07 2023 14:10:07 GMT+0800 (China Standard Time)
 1. 宝贝鲁比 - Baby Ruby----[点击播放](https://music.163.com/#/program?id=2517448191)----Tue Feb 07 2023 14:10:07 GMT+0800 (China Standard Time)
 1. Mysterious Circumstance：The Death of Meriwether Lewis----[点击播放](https://music.163.com/#/program?id=2517431148)----Tue Feb 07 2023 14:10:07 GMT+0800 (China Standard Time)
