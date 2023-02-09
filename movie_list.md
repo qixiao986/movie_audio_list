@@ -1,3 +1,8 @@
+1. 锁匠 - The Locksmith----[点击播放](https://music.163.com/#/program?id=2517664450)----Thu Feb 09 2023 15:44:39 GMT+0800 (China Standard Time)
+1. 熊出没·狂野大陆 英文版 - Boonie Bears：The Wild Life----[点击播放](https://music.163.com/#/program?id=2517566627)----Thu Feb 09 2023 15:44:38 GMT+0800 (China Standard Time)
+1. 熊出没·奇幻空间 英文版 - Boonie Bears：Entangled Worlds----[点击播放](https://music.163.com/#/program?id=2517658452)----Thu Feb 09 2023 15:44:38 GMT+0800 (China Standard Time)
+1. 熊出没·变形记 英文版 - Boonie Bears：The Big Shrink----[点击播放](https://music.163.com/#/program?id=2517611457)----Thu Feb 09 2023 15:44:38 GMT+0800 (China Standard Time)
+1. 熊出没·原始时代 英文版 - Boonie Bears：Blast into the Past----[点击播放](https://music.163.com/#/program?id=2517630452)----Thu Feb 09 2023 15:44:38 GMT+0800 (China Standard Time)
 1. 疗愈火山岛 - Stromboli----[点击播放](https://music.163.com/#/program?id=2517420442)----Wed Feb 08 2023 17:49:41 GMT+0800 (China Standard Time)
 1. 小迪克西 - Little Dixie----[点击播放](https://music.163.com/#/program?id=2517504513)----Wed Feb 08 2023 17:49:41 GMT+0800 (China Standard Time)
 1. 光之帝国 - Empire of Light----[点击播放](https://music.163.com/#/program?id=2517549487)----Wed Feb 08 2023 17:49:40 GMT+0800 (China Standard Time)
