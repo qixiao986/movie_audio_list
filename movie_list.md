@@ -1,3 +1,8 @@
+1. 雾气蒙蒙 - The I Inside----[点击播放](https://music.163.com/#/program?id=2517619648)----Fri Feb 10 2023 14:18:22 GMT+0800 (China Standard Time)
+1. 枪口朝下 - Fire Down Below----[点击播放](https://music.163.com/#/program?id=2517618658)----Fri Feb 10 2023 14:18:22 GMT+0800 (China Standard Time)
+1. 日后此痛为你用 - Someday This Pain Will Be Useful to You----[点击播放](https://music.163.com/#/program?id=2517676671)----Fri Feb 10 2023 14:18:22 GMT+0800 (China Standard Time)
+1. 抢劫坚果店 - The Nut Job----[点击播放](https://music.163.com/#/program?id=2517671641)----Fri Feb 10 2023 14:18:22 GMT+0800 (China Standard Time)
+1. 孽欲杀人夜 - Manhunter----[点击播放](https://music.163.com/#/program?id=2517664657)----Fri Feb 10 2023 14:18:22 GMT+0800 (China Standard Time)
 1. 锁匠 - The Locksmith----[点击播放](https://music.163.com/#/program?id=2517664450)----Thu Feb 09 2023 15:44:39 GMT+0800 (China Standard Time)
 1. 熊出没·狂野大陆 英文版 - Boonie Bears：The Wild Life----[点击播放](https://music.163.com/#/program?id=2517566627)----Thu Feb 09 2023 15:44:38 GMT+0800 (China Standard Time)
 1. 熊出没·奇幻空间 英文版 - Boonie Bears：Entangled Worlds----[点击播放](https://music.163.com/#/program?id=2517658452)----Thu Feb 09 2023 15:44:38 GMT+0800 (China Standard Time)
