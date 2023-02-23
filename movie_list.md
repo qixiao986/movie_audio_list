@@ -1,3 +1,8 @@
+1. 异形魔怪5：血统 - Tremors 5: Bloodline----[点击播放](https://music.163.com/#/program?id=2518198541)----Thu Feb 23 2023 17:35:59 GMT+0800 (China Standard Time)
+1. 异形魔怪4 - Tremors 4: The Legend Begins----[点击播放](https://music.163.com/#/program?id=2518247482)----Thu Feb 23 2023 17:35:59 GMT+0800 (China Standard Time)
+1. 异形魔怪3 - Tremors 3: Back to Perfection----[点击播放](https://music.163.com/#/program?id=2518215527)----Thu Feb 23 2023 17:35:58 GMT+0800 (China Standard Time)
+1. 异形魔怪2 - Tremors II: Aftershocks----[点击播放](https://music.163.com/#/program?id=2518200508)----Thu Feb 23 2023 17:35:58 GMT+0800 (China Standard Time)
+1. 异形魔怪 - Tremors‎----[点击播放](https://music.163.com/#/program?id=2518267485)----Thu Feb 23 2023 17:35:58 GMT+0800 (China Standard Time)
 1. 致命武器 - The Weapon----[点击播放](https://music.163.com/#/program?id=2518115661)----Wed Feb 22 2023 16:32:54 GMT+0800 (China Standard Time)
 1. 故园风雨后 - Brideshead Revisited----[点击播放](https://music.163.com/#/program?id=2518186540)----Wed Feb 22 2023 16:32:54 GMT+0800 (China Standard Time)
 1. Luckless in Love----[点击播放](https://music.163.com/#/program?id=2518138652)----Wed Feb 22 2023 16:32:54 GMT+0800 (China Standard Time)
