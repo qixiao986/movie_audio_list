@@ -1,3 +1,8 @@
+1. 蓝色珍妮 - Blue Jean----[点击播放](https://music.163.com/#/program?id=2519030658)----Thu Mar 16 2023 15:33:26 GMT+0800 (China Standard Time)
+1. 密室里的女孩 - Girl in the Closet----[点击播放](https://music.163.com/#/program?id=2519019687)----Thu Mar 16 2023 15:33:25 GMT+0800 (China Standard Time)
+1. 围攻 - The Siege----[点击播放](https://music.163.com/#/program?id=2519116457)----Thu Mar 16 2023 15:33:25 GMT+0800 (China Standard Time)
+1. 你们是我谁 - Who Are You People----[点击播放](https://music.163.com/#/program?id=2519103509)----Thu Mar 16 2023 15:33:25 GMT+0800 (China Standard Time)
+1. Righteous Thieves----[点击播放](https://music.163.com/#/program?id=2519070651)----Thu Mar 16 2023 15:33:25 GMT+0800 (China Standard Time)
 1. 献祭 - Consecration----[点击播放](https://music.163.com/#/program?id=2518974934)----Wed Mar 15 2023 13:36:22 GMT+0800 (China Standard Time)
 1. 熊嗨了 - Cocaine Bear----[点击播放](https://music.163.com/#/program?id=2518947949)----Wed Mar 15 2023 13:36:22 GMT+0800 (China Standard Time)
 1. 求精派对 - The Donor Party----[点击播放](https://music.163.com/#/program?id=2518960929)----Wed Mar 15 2023 13:36:22 GMT+0800 (China Standard Time)
