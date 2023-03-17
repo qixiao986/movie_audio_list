@@ -1,3 +1,8 @@
+1. 绝代艳后 - Marie Antoinette----[点击播放](https://music.163.com/#/program?id=2519181764)----Fri Mar 17 2023 19:28:26 GMT+0800 (China Standard Time)
+1. 寂静中的惊奇 - Wonderstruck----[点击播放](https://music.163.com/#/program?id=2519175760)----Fri Mar 17 2023 19:28:26 GMT+0800 (China Standard Time)
+1. 魔女嘉莉 - Carrie----[点击播放](https://music.163.com/#/program?id=2519210737)----Fri Mar 17 2023 18:18:11 GMT+0800 (China Standard Time)
+1. 赤裸惊情 - Body of Evidence----[点击播放](https://music.163.com/#/program?id=2519179700)----Fri Mar 17 2023 18:18:11 GMT+0800 (China Standard Time)
+1. 灵异拼图 - The Forgotten----[点击播放](https://music.163.com/#/program?id=2519190715)----Fri Mar 17 2023 18:18:10 GMT+0800 (China Standard Time)
 1. 蓝色珍妮 - Blue Jean----[点击播放](https://music.163.com/#/program?id=2519030658)----Thu Mar 16 2023 15:33:26 GMT+0800 (China Standard Time)
 1. 密室里的女孩 - Girl in the Closet----[点击播放](https://music.163.com/#/program?id=2519019687)----Thu Mar 16 2023 15:33:25 GMT+0800 (China Standard Time)
 1. 围攻 - The Siege----[点击播放](https://music.163.com/#/program?id=2519116457)----Thu Mar 16 2023 15:33:25 GMT+0800 (China Standard Time)
