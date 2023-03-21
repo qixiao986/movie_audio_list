@@ -1,3 +1,8 @@
+1. 飓风 - Supercell----[点击播放](https://music.163.com/#/program?id=2519339532)----Tue Mar 21 2023 11:07:19 GMT+0800 (China Standard Time)
+1. 脱离 - Leave----[点击播放](https://music.163.com/#/program?id=2519363499)----Tue Mar 21 2023 11:07:19 GMT+0800 (China Standard Time)
+1. 恋上大情圣 - The Ladies Man----[点击播放](https://music.163.com/#/program?id=2519373477)----Tue Mar 21 2023 11:07:19 GMT+0800 (China Standard Time)
+1. 弹球游戏 - Pinball：The Man Who Saved the Game----[点击播放](https://music.163.com/#/program?id=2519356485)----Tue Mar 21 2023 11:07:19 GMT+0800 (China Standard Time)
+1. My Fairy Troublemaker----[点击播放](https://music.163.com/#/program?id=2519334506)----Tue Mar 21 2023 11:07:19 GMT+0800 (China Standard Time)
 1. 湖深之处 - The Darker The Lake----[点击播放](https://music.163.com/#/program?id=2519265343)----Mon Mar 20 2023 15:02:07 GMT+0800 (China Standard Time)
 1. 明亮的星 - Bright Star----[点击播放](https://music.163.com/#/program?id=2519200324)----Mon Mar 20 2023 15:02:07 GMT+0800 (China Standard Time)
 1. 地球之夜 - Night on Earth----[点击播放](https://music.163.com/#/program?id=2519256356)----Mon Mar 20 2023 15:02:06 GMT+0800 (China Standard Time)
