@@ -1,3 +1,8 @@
+1. 七个幸运之神 - Seven Lucky Gods----[点击播放](https://music.163.com/#/program?id=2519487650)----Thu Mar 23 2023 19:27:06 GMT+0800 (China Standard Time)
+1. NYC Point Gods----[点击播放](https://music.163.com/#/program?id=2519529649)----Thu Mar 23 2023 19:27:06 GMT+0800 (China Standard Time)
+1. 第七子：降魔之战 - Seventh Son----[点击播放](https://music.163.com/#/program?id=2519565531)----Thu Mar 23 2023 18:55:58 GMT+0800 (China Standard Time)
+1. 上帝之国 - God's Own Country----[点击播放](https://music.163.com/#/program?id=2519492670)----Thu Mar 23 2023 18:55:58 GMT+0800 (China Standard Time)
+1. Deadly Estate----[点击播放](https://music.163.com/#/program?id=2519502646)----Thu Mar 23 2023 18:55:58 GMT+0800 (China Standard Time)
 1. 玉米地的小孩 - Children of the Corn----[点击播放](https://music.163.com/#/program?id=2519512463)----Wed Mar 22 2023 20:10:59 GMT+0800 (China Standard Time)
 1. 爱尔兰式告别 - An Irish Goodbye----[点击播放](https://music.163.com/#/program?id=2519525456)----Wed Mar 22 2023 20:10:59 GMT+0800 (China Standard Time)
 1. The Hillsdale Adoption Scam----[点击播放](https://music.163.com/#/program?id=2519500467)----Wed Mar 22 2023 20:10:59 GMT+0800 (China Standard Time)
