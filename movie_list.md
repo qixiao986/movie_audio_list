@@ -1,3 +1,7 @@
+1. The Baby Swindler----[点击播放](https://music.163.com/#/program?id=2520044162)----Wed Apr 05 2023 08:27:37 GMT+0800 (China Standard Time)
+1. Love in the Maldives----[点击播放](https://music.163.com/#/program?id=2520018300)----Wed Apr 05 2023 08:27:37 GMT+0800 (China Standard Time)
+1. 摇滚藏獒：乘风破浪 - Rock Dog 3：Battle the Beat----[点击播放](https://music.163.com/#/program?id=2520116717)----Tue Apr 04 2023 20:17:31 GMT+0800 (China Standard Time)
+1. 神鬼愿望 - Bedazzled----[点击播放](https://music.163.com/#/program?id=2520101851)----Tue Apr 04 2023 18:14:09 GMT+0800 (China Standard Time)
 1. 摇滚总动员 - Airheads----[点击播放](https://music.163.com/#/program?id=2520011947)----Mon Apr 03 2023 18:52:35 GMT+0800 (China Standard Time)
 1. 我呼吸的空气 - The Air I Breathe----[点击播放](https://music.163.com/#/program?id=2520012925)----Mon Apr 03 2023 18:32:52 GMT+0800 (China Standard Time)
 1. 舞会契约 - Prom Pact----[点击播放](https://music.163.com/#/program?id=2519961447)----Sun Apr 02 2023 17:54:37 GMT+0800 (China Standard Time)
