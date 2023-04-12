@@ -1,3 +1,6 @@
+1. 与爱何关 - What's Love Got To Do With It？----[点击播放](https://music.163.com/#/program?id=2520355821)----Wed Apr 12 2023 14:07:30 GMT+0800 (China Standard Time)
+1. 耶稣革命 - Jesus Revolution----[点击播放](https://music.163.com/#/program?id=2520385643)----Wed Apr 12 2023 12:16:46 GMT+0800 (China Standard Time)
+1. 一个好人 - A Good Person----[点击播放](https://music.163.com/#/program?id=2520377591)----Wed Apr 12 2023 11:19:13 GMT+0800 (China Standard Time)
 1. 大卫·科波菲尔02 - David Copperfield----[点击播放](https://music.163.com/#/program?id=2520225438)----Tue Apr 11 2023 15:41:40 GMT+0800 (China Standard Time)
 1. 大卫·科波菲尔01 - David Copperfield----[点击播放](https://music.163.com/#/program?id=2520349451)----Tue Apr 11 2023 15:41:40 GMT+0800 (China Standard Time)
 1. 马布里街头小霸王：情窦初开 - Kings of Mulberry Street：Let Love Reign----[点击播放](https://music.163.com/#/program?id=2520307426)----Tue Apr 11 2023 15:05:25 GMT+0800 (China Standard Time)
