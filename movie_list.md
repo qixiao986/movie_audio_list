@@ -1,3 +1,8 @@
+1. 赞美 - Praise This----[点击播放](https://music.163.com/#/program?id=2520631465)----Thu Apr 13 2023 15:56:31 GMT+0800 (China Standard Time)
+1. 一个小谎 - A Simple Lie----[点击播放](https://music.163.com/#/program?id=2520665460)----Thu Apr 13 2023 15:56:30 GMT+0800 (China Standard Time)
+1. The Blessing Bracelet----[点击播放](https://music.163.com/#/program?id=2520578465)----Thu Apr 13 2023 15:56:30 GMT+0800 (China Standard Time)
+1. Pride：A Seven Deadly Sins Story----[点击播放](https://music.163.com/#/program?id=2520647456)----Thu Apr 13 2023 15:56:30 GMT+0800 (China Standard Time)
+1. Giving Hope：The Ni'cola Mitchell Story----[点击播放](https://music.163.com/#/program?id=2520597461)----Thu Apr 13 2023 15:56:30 GMT+0800 (China Standard Time)
 1. 与爱何关 - What's Love Got To Do With It？----[点击播放](https://music.163.com/#/program?id=2520355821)----Wed Apr 12 2023 14:07:30 GMT+0800 (China Standard Time)
 1. 耶稣革命 - Jesus Revolution----[点击播放](https://music.163.com/#/program?id=2520385643)----Wed Apr 12 2023 12:16:46 GMT+0800 (China Standard Time)
 1. 一个好人 - A Good Person----[点击播放](https://music.163.com/#/program?id=2520377591)----Wed Apr 12 2023 11:19:13 GMT+0800 (China Standard Time)
