@@ -1,3 +1,7 @@
+1. 名侦探柯南：引爆摩天楼 英文版 - Detective Conan: Skyscraper on a Timer----[点击播放](https://music.163.com/#/program?id=2522993607)----Thu May 25 2023 12:18:10 GMT+0800 (China Standard Time)
+1. 短信情缘 - Love Again----[点击播放](https://music.163.com/#/program?id=2522938563)----Wed May 24 2023 23:09:10 GMT+0800 (China Standard Time)
+1. 疾速追杀4 - John Wick：Chapter 4----[点击播放](https://music.163.com/#/program?id=2522785308)----Tue May 23 2023 10:49:19 GMT+0800 (China Standard Time)
+1. 黑白游龙2023 - White Men Can't Jump----[点击播放](https://music.163.com/#/program?id=2522787292)----Mon May 22 2023 21:42:04 GMT+0800 (China Standard Time)
 1. 机器人们 - Robots----[点击播放](https://music.163.com/#/program?id=2522769055)----Sun May 21 2023 22:36:56 GMT+0800 (China Standard Time)
 1. 开罗时间 - Cairo Time----[点击播放](https://music.163.com/#/program?id=2522728706)----Sat May 20 2023 07:23:30 GMT+0800 (China Standard Time)
 1. 大力士：乔治·福尔曼 - Big George Foreman----[点击播放](https://music.163.com/#/program?id=2522796564)----Fri May 19 2023 16:23:41 GMT+0800 (China Standard Time)
