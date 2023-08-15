@@ -1,3 +1,7 @@
+1. 疯狂元素城 - Elemental----[点击播放](https://music.163.com/#/program?id=2527679466)----Tue Aug 15 2023 12:45:45 GMT+0800 (China Standard Time)
+1. 纵览Biz的世界 - All Up in the Biz----[点击播放](https://music.163.com/#/program?id=2527574276)----Mon Aug 14 2023 11:52:58 GMT+0800 (China Standard Time)
+1. 爸爸很流行 - Papai é Pop----[点击播放](https://music.163.com/#/program?id=2527626146)----Mon Aug 14 2023 11:52:58 GMT+0800 (China Standard Time)
+1. 门 - The Gates----[点击播放](https://music.163.com/#/program?id=2527582209)----Mon Aug 14 2023 11:52:58 GMT+0800 (China Standard Time)
 1. The Island 2023----[点击播放](https://music.163.com/#/program?id=2527570032)----Sun Aug 13 2023 18:28:05 GMT+0800 (China Standard Time)
 1. 百万英镑 - The Million Pound Note----[点击播放](https://music.163.com/#/program?id=2527629877)----Sun Aug 13 2023 06:01:30 GMT+0800 (China Standard Time)
 1. 谍之心 - Heart of Stone----[点击播放](https://music.163.com/#/program?id=2527590721)----Sat Aug 12 2023 12:42:49 GMT+0800 (China Standard Time)
