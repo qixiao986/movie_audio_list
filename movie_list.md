@@ -1,3 +1,7 @@
+1. 你能看到我们吗？- Can You See Us?----[点击播放](https://music.163.com/#/program?id=2529308457)----Mon Sep 11 2023 20:19:06 GMT+0800 (China Standard Time)
+1. 黑暗童子军：美国童子军内幕解密 - Scout's Honor：The Secret Files of the Boy Scouts of America----[点击播放](https://music.163.com/#/program?id=2529244625)----Sun Sep 10 2023 20:10:11 GMT+0800 (China Standard Time)
+1. 看不见手的风景 - Landscape with Invisible Hand----[点击播放](https://music.163.com/#/program?id=2529125366)----Sat Sep 09 2023 20:03:51 GMT+0800 (China Standard Time)
+1. 坐在酒吧里吃蛋糕 - Sitting in Bars with Cake----[点击播放](https://music.163.com/#/program?id=2529123155)----Fri Sep 08 2023 17:45:59 GMT+0800 (China Standard Time)
 1. 杀手之王 - King of Killers----[点击播放](https://music.163.com/#/program?id=2529129063)----Thu Sep 07 2023 20:52:07 GMT+0800 (China Standard Time)
 1. 新生，重生 - Birth/Rebirth----[点击播放](https://music.163.com/#/program?id=2529110656)----Wed Sep 06 2023 21:50:18 GMT+0800 (China Standard Time)
 1. 流浪狗 - Strays----[点击播放](https://music.163.com/#/program?id=2528994421)----Tue Sep 05 2023 20:43:48 GMT+0800 (China Standard Time)
